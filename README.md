@@ -1,1 +1,1 @@
-# diplom
+# dina1 master
